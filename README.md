@@ -1,1 +1,1 @@
-Por aquellos momentos felices que me has brindado, por aquellos momentos que aún no han llegado y por muchos más besos, abrazos y sueños a tu lado.
+Para el Joven Yi-jin, que se atrevió aquella noche a escribir aquel ¡hola! con el que nuestra historia inició.
